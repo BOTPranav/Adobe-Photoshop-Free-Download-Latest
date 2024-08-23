@@ -1,5 +1,4 @@
 # Adobe-Photosh0p-Free-Download--Latest-
-# Photosh0p Premium 2024
 
 ![Adobe-Photosh0p-CC-2024](https://github.com/user-attachments/assets/b56dbeaf-a511-48b9-a58b-56c751dc06fc)
 
